@@ -1,1 +1,0 @@
-# parvashukla.github.io
